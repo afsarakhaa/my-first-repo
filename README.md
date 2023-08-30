@@ -1,4 +1,4 @@
-Nama    : Afsar Rakha Farrasandi
+Nama    : Afsar Rakha Farrasandi Ganteng Parah
 
 NPM     : 206028636
 
